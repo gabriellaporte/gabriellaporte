@@ -1,5 +1,5 @@
 ### Olá! 👋 Sou o Gabriel! 🙋‍♂️
-## Um rapaz apaixonado pela tecnologia e o que ela traz na vida das pessoas
+## Apaixonado pela tecnologia e em resolver problemas com soluções criativas
 
 
 <div align="center">
